@@ -24,7 +24,7 @@ under construction
  
  <img width="99" height="56" alt="tumblr_992fafccbbe08ada6366aa2ca2ef5106_80251ecd_100" src="https://github.com/user-attachments/assets/d8205586-3d5c-408a-b5b5-441e91c505ae" />
 
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=500&color=13A1C3&width=435&lines=You+give+me+diamonds.;I+give+you+nothing!+;You+cant+fool+me%2C;I'm+like+a+dolphin+!+;You+give+me+dimonds;I+give+you+nothing.;You+can't+own+me!;I'm+like+a+dolphin+%5E3%5E" alt="Typing SVG" /></a>
+<div align="Center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=500&color=13A1C3&width=435&lines=You+give+me+diamonds.;I+give+you+nothing!+;You+cant+fool+me%2C;I'm+like+a+dolphin+!+;You+give+me+dimonds;I+give+you+nothing.;You+can't+own+me!;I'm+like+a+dolphin+%5E3%5E" alt="Typing SVG" /></a> </div>
  
 <div align="Center"> <img width="259" height="49" alt="image" src="https://github.com/user-attachments/assets/e7c11c0f-688d-4592-bfbf-13949fa6bd29" /></div>
 
