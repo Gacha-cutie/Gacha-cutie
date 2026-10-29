@@ -9,9 +9,6 @@ under construction
 
 <div align="Center"> <a href="https://visitorbadge.io/status?path=D0tt1e"><img src="https://api.visitorbadge.io/api/visitors?path=D0tt1e&label=%23%20stolen%20items&labelColor=%23b92424&countColor=%235cb6c8" /></a> </div>
 
-
-<div align="Center"><img width="100" height="70" alt="tumblr_4fcec7c4a7e00be6c34a7a3f4bb254e8_acc140b3_100" src="https://github.com/user-attachments/assets/10a3ecad-834c-43ad-aa72-3636c46b19ec" /></div>
-
  $$\color{#ca2626}{\mathbf{-\ GIGI\ OR\ KEITH}}$$
 
   $$\color{#f1ba3a}{\mathbf{-\ BASIC\ DNI.\ I\ BLOCK\ FREELY.}}$$
