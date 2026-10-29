@@ -16,9 +16,9 @@ under construction
 
   $$\color{#f1ba3a}{\mathbf{-\ BASIC\ DNI.\ I\ BLOCK\ FREELY.}}$$
 
-   $$\color{#5cb6c8}{\mathbf{-\ OTHER\ GIGI\ KINS\ /YUMES\ DNIUID/FRIEND +\ SAME\ GOES\ TO\ LOOEY\ KINS}}$$
+   $$\color{#5cb6c8}{\mathbf{-\ GIGI\ KINS\ /YUMES\ DNIUF/ID.}}$$
 
- $$\color{#ca2626}{\mathbf{-\ QWEL\ SUPPORTERS/DEFENDERS\ DNI}}$$
+
 
  
  
