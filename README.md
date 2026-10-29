@@ -12,7 +12,7 @@ under construction
 
 <div align="Center"><img width="100" height="70" alt="tumblr_4fcec7c4a7e00be6c34a7a3f4bb254e8_acc140b3_100" src="https://github.com/user-attachments/assets/10a3ecad-834c-43ad-aa72-3636c46b19ec" /></div>
 
- $$\color{#ca2626}{\mathbf{-\ GIGI\ OR\ KEI}}$$
+ $$\color{#ca2626}{\mathbf{-\ GIGI\ OR\ KEITH}}$$
 
   $$\color{#f1ba3a}{\mathbf{-\ BASIC\ DNI.\ I\ BLOCK\ FREELY.}}$$
 
