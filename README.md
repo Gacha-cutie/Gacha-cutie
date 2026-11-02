@@ -16,5 +16,8 @@ under construction AGIAN. <div align="Center"> <a href="https://visitorbadge.io/
 
 
  <div align="Center"> <img width="150" height="20" alt="tumblr_7713922898aef23ccaff44493962f377_9312b096_250" src="https://github.com/user-attachments/assets/0d035212-4d9e-4272-a2b5-66f9e7371237" /> </div>
+
+<div align="Center"><img width="342" height="34" alt="image" src="https://github.com/user-attachments/assets/de62b13c-808e-416e-9a7f-cb2998a6bb32" />
+
  
 
